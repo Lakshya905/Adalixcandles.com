@@ -1,1 +1,1 @@
-# Adalixcandles.com
+# ADALIX.com
